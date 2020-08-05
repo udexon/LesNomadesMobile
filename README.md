@@ -35,6 +35,8 @@ Use expand Wework office kitchens for CCP!!
 
 Wework's Achilles's heels is exactly liquidity. It needs to generate cash income from its investments in real estates. 
 
+Of course we do not even expect anyone from Wework would listen to our suggestions, for if there is one thing we have learned from the past, that is human nature has become so bad that good ideas will be rejected by bad people to save face, to futher personal interests until it is no longer sustainable.
+
 Let's call this business "Les Nomades Mobile" if CCP is too much a taboo for some readers.
 
 I will be frank I am not even sure if this name is correct grammatically in French. By definition, nomads are mobile people. Adding a "mobile" suffix is purely to emphasize its closeness to mobile social media, and to differentiate it with one super Michelin class restaurant somewhere, which one day we may collaborate with.
