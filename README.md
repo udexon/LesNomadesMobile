@@ -22,12 +22,12 @@ Let's break this down to a simpler question:
 
 The answer is a cooking class party &mdash; 
 
-- a chef recruits 5 apprentice; each apprentice gets 5 friends; 
-- each friend pays USD 10 up front for the party; 
-- chef leads students to buy materials using the funds collected from friends;
-- chef and students cook for friends; 
-- extra materials are cooked, packed and sold; 
-- profits are paid back to cook, students and friends.
+- A chef recruits 5 apprentice; each apprentice gets 5 friends; 
+- Each friend pays USD 10 up front for the party; 
+- Chef leads students to buy materials using the funds collected from friends;
+- Chef and students cook for friends; 
+- Extra materials are cooked, packed and sold; 
+- Profits are paid back to cook, students and friends.
 
 This one simple paragraph above covers a classic investment life cycle worthy of an MBA class: 
 - _everything from investment (funds from friends) to dividends (profits paid pack) within a few days, as well as sharing knowledge (cooking, marketing, management etc.) and contacts (friends of friends)._
