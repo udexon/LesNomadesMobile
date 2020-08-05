@@ -1,5 +1,5 @@
 # Les Nomades Mobile
-Programmers just need to learn cooking; and the ....
+- Programmers just need to learn cooking; and then ....
 
 
 
@@ -29,10 +29,6 @@ This one simple paragraph covers a classic investment life cycle worthy of an MB
 
 - Acute readers might have notice the acronym of cooking class party relates to a top taboo word in the freedom loving America. (LOLOL!!!)
 
-CCP is the magic potion Wework needs to save itself!!
-
-Use expand Wework office kitchens for CCP!!
-
 Wework's Achilles's heels is exactly liquidity. It needs to generate cash income from its investments in real estates. 
 
 Of course we do not even expect anyone from Wework would listen to our suggestions, for if there is one thing we have learned from the past, that is human nature has become so bad that good ideas will be rejected by bad people at the top to save face, to futher personal interests until it is no longer sustainable.
@@ -46,6 +42,11 @@ ii) Some facilities of Wework have a hard time finding tenants.
 In any case, we may also assume that Wework facilities are strategically located in the best spots in big hot urban areas.
 
 As Cooking Class Parties has the same acronym as China Communist Party, we should not be ashamed to say that turning Wework facilities into "community kitchens" (having the same root as "Communism" too) might just be the magic potion that it needs to save itself.
+
+In fact, from the operational perspective, what is required might just be a "minor upgrade" of kitchens in Wework facilities, so that it is large and well equipped enough to sustain the head count in the non-kitchen floor space.
+
+Then of course, the next question is planning permissions &mdash; which in turn are related to to local authorities ....
+
 
 Let's call this business "Les Nomades Mobile" if CCP is too much a taboo for some readers.
 
@@ -75,3 +76,8 @@ Train people.
 Caravan renovation. 
 
 Les Nomades Mobile. Programmers just need to learn cooking.
+
+
+CCP is the magic potion Wework needs to save itself!!
+
+Use expand Wework office kitchens for CCP!!
