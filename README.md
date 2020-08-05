@@ -94,6 +94,7 @@ Programmers learning cooking is not a one way street. It is also a way for progr
 
 So this is Les Nomades Mobile &mdash; _A Shared Economy Platform to Cook, Work and Live_ &mdash; perhaps the last type of share economy platform that has _NOT_ been developed by capitalists, not because it is not profitable, but because ".... _that would be_ ___COMMUNISM___ ...." (LOLOL!!!)
 
+
 7) _The proverbial nomads need caravans._
 
 Let us now consider some practical operational matters.
@@ -105,6 +106,8 @@ To make Les Nomades Mobile a thriving business, kitchen renovation, or even _mob
 As the philosophy of shared economy is ___to share capital and knowledge___, it would be natural to consider the following:
 
 - An Online Contest for Innovative Food Trucks, Caravans and Recycled Containers
+
+Online Contests, derived from reality TV shows, are very useful platform whose effectiveness is maximized much like an open and free market, or bazaar, i.e. sponsors may compete with each other for the best price to recruit the top talents. In this case, the talents we are seeking are those who can renovate food trucks and recycled containers.
 
 8) Last but not least, ....
 
