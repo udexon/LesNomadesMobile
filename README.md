@@ -35,7 +35,17 @@ Use expand Wework office kitchens for CCP!!
 
 Wework's Achilles's heels is exactly liquidity. It needs to generate cash income from its investments in real estates. 
 
-Of course we do not even expect anyone from Wework would listen to our suggestions, for if there is one thing we have learned from the past, that is human nature has become so bad that good ideas will be rejected by bad people to save face, to futher personal interests until it is no longer sustainable.
+Of course we do not even expect anyone from Wework would listen to our suggestions, for if there is one thing we have learned from the past, that is human nature has become so bad that good ideas will be rejected by bad people at the top to save face, to futher personal interests until it is no longer sustainable.
+
+Assuming as little as possible about Wework's business, we making the following assumptions concerning the "bleeding" factors of Wework (or any similar businesses):
+
+i) Some tenants of Wework are not making money.
+
+ii) Some facilities of Wework have a hard time finding tenants.
+
+In any case, we may also assume that Wework facilities are strategically located in the best spots in big hot urban areas.
+
+As Cooking Class Parties has the same acronym as China Communist Party, we should not be ashamed to say that turning Wework facilities into "community kitchens" (having the same root as "Communism" too) might just be the magic potion that it needs to save itself.
 
 Let's call this business "Les Nomades Mobile" if CCP is too much a taboo for some readers.
 
