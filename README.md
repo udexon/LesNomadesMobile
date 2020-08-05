@@ -58,13 +58,13 @@ Now, let's consider the next question:
 
 - What really are the essential differences amongst Wework, Airbnb and Les Nomades Mobile?
 
-Wework is a place for people to work.
+  - _Wework is a place for people to work._
 
-Airbnb is a place for people to sleep.
+  - _Airbnb is a place for people to sleep._
 
-Les Nomades Mobile is a place for people to eat.
+  - _Les Nomades Mobile is a place for people to eat._
 
-- Can we not have a place for people to eat, work and sleep?
+- Can we not have ___a place for people to eat, work and sleep?___
 
 _"Well, of course we cannot. Because then this will help the poor and eliminate the homeless .... and ...."_
 
