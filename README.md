@@ -4,15 +4,15 @@
 
 
 
-&mdash; What are the lessons we can learn from Wework, arguably the biggest blunder in the history of shared economy startups? 
+1. What are the lessons we can learn from Wework, arguably the biggest blunder in the history of shared economy startups? 
 
 It is liquidity. By liquidity, we do not just mean liquidity of money, but also that of knowledge.
 
 Consider food delivery services. No doubt they have created many jobs for low level skill people. However, there is not much sharing of knowledge, or liquidity of knowledge, ie. training for career advancement amongst the delivery personnel. 
 
-On the other hand, cooks are a matured industry, with well established training and career development pathways. 
+2. On the other hand, cooks are a matured industry, with well established training and career development pathways. 
 
-So the first question is:
+So the first question we wish to explore is:
 
 - What relates Wework, food delivery riders, cooks and Airbnb?
 
@@ -121,37 +121,4 @@ We believe that Les Nomades Mobile Cooking Class Parties might just be a ___NON-
 Why not?
 
 <hr>
-
-get Les Nomades to film and promote ....
-
-Hire van and container renovation experts. Do online contest.
-
-Need mobile kitchen.
-
-Chair, food truck, etc.
-
-Renovate van as business.
-
-
-
-Train people.
-
-Caravan renovation. 
-
-Les Nomades Mobile. Programmers just need to learn cooking.
-
-
-CCP is the magic potion Wework needs to save itself!!
-
-Use expand Wework office kitchens for CCP!!
-
-
-1) 
-
-We will use this article to invite Les Nomades to let us film their operations and if they are willing to collaborate, we will begin. 
-
-The answer is Les Nomades Mobile. 
-
-
-Find big Airbnb, the bigger the better, harder to find tenants, can fit in more people for cooking class.
 
