@@ -92,16 +92,9 @@ Instead of just aiming at rich people with lots of cash to spend to host large g
 
 Programmers learning cooking is not a one way street. It is also a way for programmers, who are most likely equipped with more advanced management and business knowledge, to train locals running cafes and hostels.
 
-So this is Les Nomades Mobile &mdash; _A Shared Economy Platform to Cook, Work and Live_ &mdash; perhaps the last type of share economy platform that has been explored by capitalists, not because it is not profitable, but because ".... _that would be_ ___COMMUNISM___ ...." (LOLOL!!!)
+So this is Les Nomades Mobile &mdash; _A Shared Economy Platform to Cook, Work and Live_ &mdash; perhaps the last type of share economy platform that has _NOT_ been developed by capitalists, not because it is not profitable, but because ".... _that would be_ ___COMMUNISM___ ...." (LOLOL!!!)
 
-1) 
-
-We will use this article to invite Les Nomades to let us film their operations and if they are willing to collaborate, we will begin. 
-
-The answer is Les Nomades Mobile. 
-
-
-Find big Airbnb, the bigger the better, harder to find tenants, can fit in more people for cooking class.
+7) Hire van and container renovation experts. Do online contest.
 
 Need mobile kitchen.
 
@@ -109,7 +102,7 @@ Chair, food truck, etc.
 
 Renovate van as business.
 
-Hire van and container renovation experts. Do online contest.
+
 
 Train people.
 
@@ -121,3 +114,14 @@ Les Nomades Mobile. Programmers just need to learn cooking.
 CCP is the magic potion Wework needs to save itself!!
 
 Use expand Wework office kitchens for CCP!!
+
+
+1) 
+
+We will use this article to invite Les Nomades to let us film their operations and if they are willing to collaborate, we will begin. 
+
+The answer is Les Nomades Mobile. 
+
+
+Find big Airbnb, the bigger the better, harder to find tenants, can fit in more people for cooking class.
+
