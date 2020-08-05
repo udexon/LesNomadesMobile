@@ -92,7 +92,7 @@ Instead of just aiming at rich people with lots of cash to spend to host large g
 
 Programmers learning cooking is not a one way street. It is also a way for programmers, who are most likely equipped with more advanced management and business knowledge, to train locals running cafes and hostels.
 
-So this is Les Nomades Mobile &mdash; _A Shared Economy Platform to Cook, Work and Live_ &mdash; perhaps the last type of share economy platform that has been explored by capitalists, not because it is not profitable, but because "that would be ___COMMUNISM___". (LOLOL!!!)
+So this is Les Nomades Mobile &mdash; _A Shared Economy Platform to Cook, Work and Live_ &mdash; perhaps the last type of share economy platform that has been explored by capitalists, not because it is not profitable, but because ".... that would be ___COMMUNISM___ ...." (LOLOL!!!)
 
 1) 
 
