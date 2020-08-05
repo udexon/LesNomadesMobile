@@ -112,13 +112,17 @@ We suppose there are numerous French restaurants with the name "Les Nomades". We
 
 As such, if we can convince some of the owners of "Les Nomades" restaurants to work with us, e.g. start filming what they have in the kitchen, whether they are willing to host our Les Nomades Mobile Cooking Class Parties .... etc., this article might just become the most significant and successful bootstrap pitching stun in history.
 
-9) Although we agree with our estemmed Karl Marx's observation:
+9) Although we agree with our esteemed Karl Marx's observation:
 
 - The history of all hitherto existing society is the history of class struggles.
 
 We believe that Les Nomades Mobile Cooking Class Parties might just be a ___NON-VIOLENT solution___  to class struggles, which is worth a try.
 
 Why not?
+
+So if the freedom loving Americans wish to find a politically correct accusation again us, this might be it:
+
+&mdash; We are ___NON-VIOLENT Communists___.
 
 <hr>
 
