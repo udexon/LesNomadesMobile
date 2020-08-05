@@ -66,7 +66,7 @@ Now, let's consider the next question:
 
 - Can we not have ___a place for people to eat, work and sleep?___
 
-_"Well, of course we cannot. Because then this will help the poor and eliminate the homeless .... and ...."_
+_"Well, of course we cannot. Because then this will help the poor and eliminate the homeless .... and .... that would be ___COMMUNISM___!!!"_
 
 We suppose you may be able to figure out the rest of the excuses to be made by freedom loving Americans.
 
