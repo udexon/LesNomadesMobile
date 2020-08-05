@@ -94,7 +94,37 @@ Programmers learning cooking is not a one way street. It is also a way for progr
 
 So this is Les Nomades Mobile &mdash; _A Shared Economy Platform to Cook, Work and Live_ &mdash; perhaps the last type of share economy platform that has _NOT_ been developed by capitalists, not because it is not profitable, but because ".... _that would be_ ___COMMUNISM___ ...." (LOLOL!!!)
 
-7) Hire van and container renovation experts. Do online contest.
+7) _The proverbial nomads need caravans._
+
+Let us now consider some practical operational matters.
+
+As has been well known through history, those who make tools profit first before those in the proper business. Mining machinery companies thrived before mining companies.
+
+To make Les Nomades Mobile a thriving business, kitchen renovation, or even _mobile_ kitchen renovation, i.e. _food trucks_, the proverbial _caravan_ may be in demand. In fact, this may also create demands for recycled shipping containers &mdash; an increasingly popular material for mobile or permanent buildings.
+
+As the philosophy of shared economy is ___to share capital and knowledge___, it would be natural to consider the following:
+
+- An Online Contest for Innovative Food Trucks, Caravans and Recycled Containers
+
+8) Last but not least, ....
+
+We suppose there are numerous French restaurants with the name "Les Nomades". We were hoping that some of the owners may be sympathetic to this idea, as it is "socialist", to serve the "proletariat".
+
+As such, if we can convince some of the owners of "Les Nomades" restaurants to work with us, e.g. start filming what they have in the kitchen, whether they are willing to host our Les Nomades Mobile Cooking Class Parties .... etc., this article might just become the most significant and successful bootstrap pitching stun in history.
+
+9) Although we agree with our estemmed Karl Marx's observation:
+
+- The history of all hitherto existing society is the history of class struggles.
+
+We believe that Les Nomades Mobile Cooking Class Parties might just be a ___NON-VIOLENT solution___  to class struggles, which is worth a try.
+
+Why not?
+
+<hr>
+
+get Les Nomades to film and promote ....
+
+Hire van and container renovation experts. Do online contest.
 
 Need mobile kitchen.
 
