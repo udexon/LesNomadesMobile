@@ -1,9 +1,10 @@
 # Les Nomades Mobile
+## &mdash; _A Shared Economy Platform to Cook, Work and Live_
 - _Programmers just need to learn cooking; and then ...._
 
 
 
-What are the lessons we can learn from Wework, arguably the biggest blunder in the history of shared economy startups? 
+&mdash; What are the lessons we can learn from Wework, arguably the biggest blunder in the history of shared economy startups? 
 
 It is liquidity. By liquidity, we do not just mean liquidity of money, but also that of knowledge.
 
@@ -21,9 +22,15 @@ Let's break this down to a simpler question:
 
 The answer is a cooking class party &mdash; 
 
-- a chef recruits 5 apprentice; each apprentice gets 5 friends; - each friend pays USD 10 up front for the party; - chef leads students to buy materials using the funds collected from friends;- chef and students cook for friends; - extra materials are cooked, packed and sold; - profits are paid back to cook, students and friends.
+- a chef recruits 5 apprentice; each apprentice gets 5 friends; 
+- each friend pays USD 10 up front for the party; 
+- chef leads students to buy materials using the funds collected from friends;
+- chef and students cook for friends; 
+- extra materials are cooked, packed and sold; 
+- profits are paid back to cook, students and friends.
 
-This one simple paragraph covers a classic investment life cycle worthy of an MBA class: everything from investment (funds from friends) to dividends (profits paid pack) within a few days, as well as sharing knowledge (cooking, marketing, management etc.) and contacts (friends of friends).
+This one simple paragraph above covers a classic investment life cycle worthy of an MBA class: 
+- _everything from investment (funds from friends) to dividends (profits paid pack) within a few days, as well as sharing knowledge (cooking, marketing, management etc.) and contacts (friends of friends)._
 
 3) How does the cooking class party (CCP) relate to Wework?
 
