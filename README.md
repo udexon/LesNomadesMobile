@@ -73,7 +73,7 @@ Now, let's consider the next question:
 
 - Can we not have ___a place for people to eat, work and sleep?___
 
-_"Well, of course we cannot. Because then this will help the poor and eliminate the homeless .... and .... that would be ___COMMUNISM___!!!"_
+  - _"Well, of course we cannot. Because then this will help the poor and liberate, sorry, eliminate, whatever, .... the homeless .... and .... that would be ___COMMUNISM___!!!"_
 
 We suppose you may be able to figure out the rest of the excuses to be made by freedom loving Americans.
 
@@ -86,13 +86,13 @@ So large accomodations of Airbnb (or similar platforms) would be the ideal candi
 Instead of just aiming at rich people with lots of cash to spend to host large group of people, LNM CCP are funded by people who are willing to invest small sums of money, to learn cooking and other skills, and expand these leisurely activities as businesses.
 
 
-6) Digital nomads have become a fixture globally in the past decade. Some of them may find it getting harder to make money to sustain their expenses.
+6) Digital nomads have become a fixture globally in far flung paradises in the past decade. Some of them may find it getting harder to make money to sustain their expenses.
 
 - What would be better for digital nomads (programmers) to join Les Nomades Mobile (to learn cooking etc.)?
 
 Programmers learning cooking is not a one way street. It is also a way for programmers, who are most likely equipped with more advanced management and business knowledge, to train locals running cafes and hostels.
 
-So what are in Les Nomades Mobile?
+So this is Les Nomades Mobile &mdash; _A Shared Economy Platform to Cook, Work and Live_ &mdash; perhaps the last type of share economy platform that has been explored by capitalists, not because it is not profitable, but because "that would be ___COMMUNISM___". (LOLOL!!!)
 
 1) 
 
