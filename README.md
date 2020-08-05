@@ -1,5 +1,5 @@
 # Les Nomades Mobile
-- Programmers just need to learn cooking; and then ....
+- _Programmers just need to learn cooking; and then ...._
 
 
 
@@ -47,10 +47,30 @@ In fact, from the operational perspective, what is required might just be a "min
 
 Then of course, the next question is planning permissions &mdash; which in turn are related to to local authorities ....
 
+We suppose the "startup gurus" in Wework board should be intelligent enough to figure out the rest. What we cannot predict are just the excuses they might use to reject this idea. (LOLOL!!!)
 
-Let's call this business "Les Nomades Mobile" if CCP is too much a taboo for some readers.
 
-I will be frank I am not even sure if this name is correct grammatically in French. By definition, nomads are mobile people. Adding a "mobile" suffix is purely to emphasize its closeness to mobile social media, and to differentiate it with one super Michelin class restaurant somewhere, which one day we may collaborate with.
+4. Let's call this business "Les Nomades Mobile" if CCP is too much a taboo for some readers.
+
+We will be frank we are not even sure if this name is correct grammatically in French. By definition, nomads are mobile people. Adding a "mobile" suffix is purely to emphasize to English readers its closeness to mobile social media, and to differentiate it with one Michelin class restaurant somewhere, which one day we hope we may collaborate with.
+
+Now, let's consider the next question:
+
+- What really are the essential differences amongst Wework, Airbnb and Les Nomades Mobile?
+
+Wework is a place for people to work.
+
+Airbnb is a place for people to sleep.
+
+Les Nomades Mobile is a place for people to eat.
+
+- Can we not have a place for people to eat, work and sleep?
+
+_"Well, of course we cannot. Because then this will help the poor and eliminate the homeless .... and ...."_
+
+We suppose you may be able to figure out the rest of the excuses to be made by freedom loving Americans.
+
+
 
 So what are in Les Nomades Mobile?
 
