@@ -70,7 +70,20 @@ _"Well, of course we cannot. Because then this will help the poor and eliminate 
 
 We suppose you may be able to figure out the rest of the excuses to be made by freedom loving Americans.
 
+5) After getting rid of some politically correct non-sense, we may now proceed to talk about how Les Nomades Mobile may merge with the business models of Airbnb and Wework.
 
+- Consider Pareto's principle where the largest portion of Airbnb business belongs to small accomodations (less than 5 people) and large accomodations (more than 10 people) may have a hard time getting guests.
+
+So large accomodations of Airbnb (or similar platforms) would be the ideal candidates to host Les Nomades Mobile Cooking Class Parties (LNM CCP).
+
+Instead of just aiming at rich people with lots of cash to spend to host large group of people, LNM CCP are funded by people who are willing to invest small sums of money, to learn cooking and other skills, and expand these leisurely activities as businesses.
+
+
+6) Digital nomads have become a fixture globally in the past decade. Some of them may find it getting harder to make money to sustain their expenses.
+
+- What would be better for digital nomads (programmers) to join Les Nomades Mobile (to learn cooking etc.)?
+
+Programmers learning cooking is not a one way street. It is also a way for programmers, who are most likely equipped with more advanced management and business knowledge, to train locals running cafes and hostels.
 
 So what are in Les Nomades Mobile?
 
